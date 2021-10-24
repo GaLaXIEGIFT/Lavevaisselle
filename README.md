@@ -1,2 +1,0 @@
-# Lavevaisselle
-private joke
